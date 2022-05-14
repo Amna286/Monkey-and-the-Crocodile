@@ -1,1 +1,1 @@
-Once upon a time in a forest there lived a monkey who resided on a berry tree. In the same forest there lived a crocodile with his wife.
+Once upon a time in a forest there lived a monkey who resided on a berry tree. In the same forest there lived a crocodile with his wife. One day the crocodile came to the banks of the river and rested under the berry tree. The monkey offered him some fruits.
